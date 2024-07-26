@@ -1,1 +1,0 @@
-Convert your currency now !
